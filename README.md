@@ -1,2 +1,7 @@
 # Hello-World-Repo
-Starter Project
+
+Hey Gamers
+
+Idek what this is tbh but yea
+
+Mexico doesn't exist
